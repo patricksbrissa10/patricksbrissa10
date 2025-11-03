@@ -8,7 +8,7 @@
 ---
 
 ## 🔭 Currently Working On
-Free Lance 🍴
+Free Lance 
 
 ---
 
